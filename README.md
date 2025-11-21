@@ -1,0 +1,7 @@
+
+ce dépôt va être utilisé pour vérifier mon travail et vérifier que j’ai bien acquis les bases de git...
+
+
+j'aime pas les bananes
+
+ a nan nan j'aime vraiment pas ca
