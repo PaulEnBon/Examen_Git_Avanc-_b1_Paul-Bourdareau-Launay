@@ -1,2 +1,2 @@
-les couleurs seront ici
+les couleurs seront la
 ou la 
